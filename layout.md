@@ -16,6 +16,9 @@ figures/output9
 2r9ckqdmbqo.html
 figures/output2
 prmpi1sejq8.html
+blgcnvppsj8.html
+figures/output1
+onlovo0jc9o.html
 3h4ue49m97.html
 k1v7j4d2h28.html
 kekou69mt3o.html
