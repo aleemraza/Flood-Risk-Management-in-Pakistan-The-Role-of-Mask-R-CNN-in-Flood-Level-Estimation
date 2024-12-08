@@ -4,6 +4,7 @@ kkg910h4vr8.html
 figures/Table1
 f3fan9fpbao.html
 eginh4mnau.html
+figures/Your paragraph text
 3ehlk0hdt48.html
 kekou69mt3o.html
 kqrr4s6bp5g.html
