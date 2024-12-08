@@ -7,6 +7,7 @@ eginh4mnau.html
 figures/Your paragraph text
 3ehlk0hdt48.html
 qkn477bhd28.html
+figures/Mask R-CNN
 55tf1ee4uo.html
 kekou69mt3o.html
 kqrr4s6bp5g.html
