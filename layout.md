@@ -20,6 +20,7 @@ blgcnvppsj8.html
 figures/output1
 onlovo0jc9o.html
 rb4pe8njpmg.html
+figures/fif
 3h4ue49m97.html
 k1v7j4d2h28.html
 kekou69mt3o.html
